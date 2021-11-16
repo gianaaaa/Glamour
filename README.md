@@ -1,2 +1,2 @@
-# gianaDiamartin
+# Glamour Glammy
 glamour 
